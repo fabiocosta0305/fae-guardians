@@ -172,7 +172,7 @@ _"Por sorte, nada de ruim aconteceu, mas poderia ter sido uma tragédia: um Lobo
 
 _"Me chamo Pericles Gautier... Era investigador aqui até... Acontecer aquela porra quando algo me agarrou em um beco e me levou para aquela Floresta maldita... O que diabos você quer dizer com Guardiões... E o que é esse Equilíbrio que você falou?"_, pergunta Pericles, o Lobo.
 
-_"Bem... Dito rapidamente, existe uma quantidade indeterminada, mas astronômica, de Reinos  na realidade. Seus cientistas diriam que tais realidades estão em um nível penta, hexa, ou mesmo heptadimensional, já que eles não afetam o tempo da sua Realidade. Entretanto, mesmo eles estão sujeitos às flutuações de energia envolvendo as interações entre as múltiplas Realidades. Pode utilizar o termo Magia, ele é tão bom quanto qualquer outro para denominar tais energias. Fluxos pequenos não são problemáticos: registros de Contos de Fadas de seu mundo são quase como registros da história da interação dos outros mundos com esse. Entretanto, se faz necessário Guardiões desse Equilibrio, que evitem que os efeitos de tais interações tornem-se perigosos ao ponto de que possa romper o Equilibrio entre as Realidades, exterminando-as."_ diz Tumnus.
+_"Bem... Dito rapidamente, existe uma quantidade indeterminada e astronômica, ainda que não Infinita, de Reinos na realidade. Seus cientistas diriam que tais Realidades interagem entre si em um nível penta, hexa, ou mesmo heptadimensional, já que eles não afetam o tempo da sua Realidade. Entretanto, mesmo elas estão sujeitos às flutuações de energia envolvendo as interações entre as múltiplas Realidades. Pode utilizar o termo Magia, ele é tão bom quanto qualquer outro para denominar tais energias. Fluxos pequenos não são problemáticos: registros de Contos de Fadas de seu mundo são quase como registros da história da interação dos outras Realidades com essa. Entretanto, se faz necessário Guardiões desse Equilibrio, pessoas que evitem que os efeitos de tais interações tornem-se perigosos ao ponto de que possa romper o Equilibrio entre as Realidades, exterminando-as totalmente."_ diz Tumnus.
 
 _"Peraí! Eu não pedi por isso!"_ reclama Bob _"Ah, só para não deixar vocês no vácuo, me chamem Bob."_
 
@@ -182,11 +182,11 @@ _"Isso seria terrível!"_ diz Helen _"Acho que comigo as coisas foram mais genti
 
 _"Olha, moça, e eu estou tentando ser educado, acreditar nas palavras de um mendigo meio doido só porque ele ajudou a gente quando estávamos pirados por algum motivo é meio demais, não acha?"_ diz Pericles, catando um punhado de pretzels e os mastigando com sua mandíbula feroz, farelo dos mesmos saindo pelos vãos das presas poderosas esmigalhando os petiscos
 
-_"Vindo de um Lobo Mau que quase não tem modos à mesa,o seu questionamento parece tão absurdo quanto."_ diz Helen com uma risadinha
+_"Vindo de um Lobo Mau que quase não tem modos à mesa,o seu questionamento parece tão absurdo quanto."_ diz Helen com uma risadinha.
 
 _"É... Faz sentido..."_ ele diz, meio cabisbaixo
 
-_"Perdão, meu caro, mas acho que existe mais coisa em jogo do que imaginamos..."_ diz Helen
+_"Perdão, meu caro, mas acho que existe mais coisa em jogo do que imaginamos..."_ diz Helen.
 
 _"Olha, o papo tá legal... Mas como vamos fazer para voltarmos ao normal?"_ diz Bob _"Eu não curto muito a ideia de ser feito de maneira, não sei se repararam."_
 
@@ -194,7 +194,7 @@ _"Vocês apenas precisam ficar uns dias descansando do uso excessivo do Escopo e
 
 _"Como se um hotel fosse receber um garoto de madeira, uma fada madrinha e um Lobo Mau."_ diz Pericles _"Talvez na Disney, mas..."_
 
-_"Acho que tenho como resolver nosso problema. Senhor Liam... Poderia me emprestar o telefone, por favor?"_ diz Helen
+_"Acho que tenho como resolver nosso problema. Meu cara barman... Poderia me emprestar o telefone, por favor?"_ diz Helen
 
 ---
 
@@ -202,7 +202,7 @@ Alguns minutos depois, uma _van_ deixa os três no subsolo do Edifício Dakota, 
 
 _"De todos os lugares do mundo, tu tinha que morar aqui? Esse prédio é maldito."_ diz Pericles
 
-_"Fã dos Beatles também?"_ ela diz Sorrindo _"Na verdade, sempre achei um prédio agradável. O ar gótico é bacana, e todas essa ideia de_ maldição _que falam por causa de John Lennon e do Bebê de Rosemary apenas torna mais fácil manter uma certa privacidade."_ enquanto ela encaminha todos até um elevador social.
+_"Fã dos Beatles também?"_ ela diz sorrindo _"Na verdade, sempre achei um prédio agradável. O ar gótico é bacana, e todas essa ideia de_ maldição _que falam por causa de John Lennon e do Bebê de Rosemary apenas torna mais fácil manter uma certa privacidade."_ enquanto ela encaminha todos até um elevador social.
 
 Ela aperta um botão direto para um dos _flats_: _"quando alguém vai para os Flats, o elevador não para no meio do caminho por segurança e privacidade"_.
 
@@ -218,13 +218,13 @@ _"Pobre menina rica!"_ ironiza Bob, sem perceber que acertou direto no alvo do c
 
 _"Está bem... Prefiro a sinceridade honesta e cruel ao sorriso hipócrita, mesmo que saiba como jogar no jogo social."_ diz Helen, cabisbaixa _"Tem algumas roupas nos quartos... Se algo os servir, podem ficar à vontade para usarem o que quiser."_
 
-_"Bem..."_ diz Pericles _"Não sei quanto a vocês, mas estou louco por um banho."_
+_"Bem..."_ diz Pericles _"Não sei quanto a vocês, mas estou louco por um banho. Não aguento mais esse cheiro, ele está me atiçando a coisas que não quero fazer!"_
 
 _"Fique à vontade."_ diz Helen, tentando se acalmar um pouco _"Eu estou exausta: preciso dormir. Se me dão licença..."_ ela termina, dirigindo-se ao quarto dela
 
 _"Vai ser algo interessante isso..."_ diz Bob, com um sorriso trapaceiro
 
-_"Se você tentar uma gracinha com ela, eu vou arrebentar você, já vou deixar claro!"_ diz Pericles _"Eu não sei que diabos está acontecendo, mas ela ao menos está tentando nos ajudar, e não acho nada legal se aproveitar disso."_
+_"Se você tentar uma gracinha com ela, eu vou arrebentar você, já vou deixar claro!"_ diz Pericles, flexionando as garras e as mostrando para o garoto de madeira _"Eu não sei que diabos está acontecendo, mas ela ao menos está tentando nos ajudar, e não acho nada legal se aproveitar disso."_
 
 _"Está certo! Fica calmo, cara..."_ suspira Bob, indo até um dos quartos.
 
@@ -246,23 +246,23 @@ _"É verdade."_ diz o Sr. Tumnus, ainda vestido em andrajos, ainda que mais limp
 
 _"E Esse Escopo tendo, na falta de termo melhor,  uma função na Realidade, representada por uma criatura de fábulas ou da fantasia, ou assim imaginam as pessoas. Pelo menos foi o que entendi até agora."_ diz Helen _"Quer dizer que existem Escopos de outras criaturas mágicas?"_ ela questiona 
 
-_"Sim. Ainda que nem toda criatura mágica seja resultado ou proveja um Escopo, todo portador de um Escopo o recebe baseado em uma criatura mágica. Uma Fada Madrinha, um Lobo Mau e um Pinóquio, no caso de vocês."_ diz Tumnus, observando Helen, Pericles e Bob.
+_"Sim. Ainda que nem toda criatura mágica seja resultado ou provenha um Escopo, todo portador de um Escopo o recebe baseado em uma criatura mágica. Uma Fada Madrinha, um Lobo Mau e um Pinóquio, no caso de vocês."_ diz Tumnus, observando Helen, Pericles e Bob.
 
 _"E o que diabo é a tal da Sobrecarga?"_ diz Bob 
 
-_"Vocẽs receberam habilidades especiais, vindas de seus Escopos. Talvez força sobrehumana, talvez Magia, talvez uma capacidade especial de enganar pessoas, mas algo fora do que seria considerado comum para um ser humano. Entretanto... Isso vem com um preço: ao usar essas capacidades, vocês estão entrando em contato com algo extraordinário. Quanto mais o fizerem de maneira desproposital ou despreparada, mais estarão próximos de se perderem, tornando-se criaturas de Mito e Magia, totalmente incompatíveis com esse Mundo Atual."_ diz Tumnus, enquanto toma o chá que Helen serviu a todos, embora Pericles tenha preferido Cerveja e Bob uma lata de Dr. Pepper. _"Para serem aquilo que se espera de vocês, que é usar suas capacidades para proteger o Equilíbrio da Realidade, vocês poderão utilizar esses poderes. Entretanto, cuidado! O abuso dos mesmos, levando à Sobrecarga do uso de tais poderes e habilidades do Escopo, pode colocar sua própria individualidade em risco: Helen e Pericles... Vocês devem ter percebido como foi quando vocês estiveram sobrecarregados com o Lobo Mau e com a Fada Madrinha."_
+_"Vocẽs receberam habilidades especiais, vindas de seus Escopos. Talvez força sobrehumana, talvez Magia, talvez uma capacidade especial de enganar pessoas, mas algo fora do que seria considerado comum para um ser humano. Entretanto... Isso vem com um preço: ao usar essas capacidades, vocês estão entrando em contato com algo extraordinário. Quanto mais o fizerem de maneira desproposital ou despreparada, mais estarão próximos de se perderem, tornando-se criaturas de Mito e Magia, totalmente incompatíveis com esse Mundo Atual."_ diz Tumnus, enquanto toma o chá que Helen serviu a todos, embora Pericles tenha preferido Cerveja e Bob uma lata de Dr. Pepper. _"Para serem aquilo que se espera de vocês, que é usar suas capacidades para proteger o Equilíbrio da Realidade, vocês poderão, ou antes, deverão utilizar esses poderes. Entretanto, cuidado! O abuso dos mesmos, levando à Sobrecarga do uso de tais poderes e habilidades do Escopo, pode colocar sua própria individualidade em risco: Helen e Pericles... Vocês devem ter percebido como foi quando vocês estiveram sobrecarregados com o Lobo Mau e com a Fada Madrinha."_
 
 _"Sim..."_ diz Pericles _"É como naqueles filmes baratos de lobisomem: tudo o que você quer é saciar um instinto de destruição."_
 
 _"Eu senti como se tivesse que proteger todos, inclusive a Pericles, mesmo que com isso eu pudesse ser destruída."_ diz Helen
 
-_"Esse é o perigo do Escopo: use-o de maneira inadequada, e existirá uma grande chance de vocês se perderem nessa_ persona _que lhes foi dada, na falta de um termo melhor."_ diz Tumnus _"Perdão, mas explicar em termos dessa realidade o que lhes aconteceu é complexo, em especial quando tantos em seu Reino são descrentes da Magia."_
+_"Esse é o perigo do Escopo: use-o de maneira inadequada, e existirá uma grande chance de vocês se perderem nessa_ persona _que lhes foi dada, na falta de um termo melhor."_ diz Tumnus _"Perdão, mas explicar em termos desse Reino o que lhes aconteceu é complexo, em especial quando tantos em seu Reino são descrentes da Magia."_
 
 _"Esse Reino?"_ diz Helen, levantando uma sombrancelha _"Então não é daqui?"_
 
 Tumnus observa os três e diz:
 
-_"Sim... Não sou dessa realidade. Ainda irei contar-lhes toda a minha história, mas não tenho como lhes convencer de outro modo, exceto dizer que (1) eu sei como é ser um Guardião e (2) eu também tenho meus objetivos. Mas (3) não sou hostil a vocês: também estou do lado do Equilíbrio... Diferente de outros..."_ ele diz, e diz baixinho _"Como Morgause."_
+_"Sim... Não sou desse Reino. Ainda irei contar-lhes toda a minha história, mas não tenho como lhes convencer de outro modo sobre nada que eu lhes disser, exceto dizer que (1) eu sei como é ser um Guardião e (2) eu também tenho meus objetivos. Mas (3) não sou hostil a vocês: também estou do lado do Equilíbrio... Diferente de outros..."_ ele diz, e diz baixinho _"Como Morgause."_
 
 _"Morgause!"_ exclama Bob _"Aquele careca babaca que me transformou em um burrinho e em um boneco de madeira mencionou esse nome, várias vezes!"_
 
